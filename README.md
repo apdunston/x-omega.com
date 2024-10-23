@@ -1,3 +1,3 @@
 # x-omega.com
 
-This seemed like a really cool domain name around 1997.
+This seemed like a really cool domain name in 1997.
